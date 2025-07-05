@@ -100,4 +100,4 @@ Use responsibly and comply with all applicable laws.
 
 ---
 
-© 2025 - Cybersecurity Education | Que
+© 2025 - Que
